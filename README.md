@@ -13,6 +13,6 @@
 平台采用先进的视频播放技术，保证流畅播放和高清画质，避免卡顿，让观众享受极致观影体验。同时，平台还注重用户隐私保护，采取加密技术确保数据安全。
 总之，日本AV免费平台凭借其便捷、免付费、高清、流畅的特点，成为了影迷们的理想选择，让你轻松享受无广告、无注册、高清流畅的日本AV影片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/x20250705/x13 ）</span>
 
 
